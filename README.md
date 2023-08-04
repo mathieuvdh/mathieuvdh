@@ -1,3 +1,3 @@
 # Welcome
 
-Website : [https://linktree\mathieuvandenhautte](https://linktree\mathieuvandenhautte)
+Website : [https://linktr.ee/mathieuvandenhautte](https://linktr.ee/mathieuvandenhautte)
